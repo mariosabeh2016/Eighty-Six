@@ -5,4 +5,5 @@
 2. Chapter 2:
     - Ishmael Ahab is the captain of the regicide orphan fleet's Stella Maris flatship.
     - His sister's name is Esther
+    - Theo is from the south, a place called Electra
     - 
