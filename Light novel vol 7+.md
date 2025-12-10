@@ -7,3 +7,4 @@
     - Zelene lost her brother in a friendly fire accident, henceforth why she didn't make air weapons for legion
     - Olivia = Oliver, a man who lost his wife to war (3 years prior), personal name: anna maria most prob was the name of his wife
     - Frederica could end the legion war
+    - Shin's bday is in may, Lena's bday is after his bday by some months
