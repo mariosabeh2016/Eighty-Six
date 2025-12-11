@@ -10,4 +10,5 @@
 4. Chapter 4:
     - The noctiluca is the legion giant battleship, formed by the brains gathered from the Rin-Liu Trade federation located in the hammada desert located between the federacy and the countries of the continent's east. In addition to its surrounding nations of and tries.
     - This above was the legion strategy to imporve their commanding units strategies.
-    - 
+    - Kurena's parents were beaten to death by republic soldiers as part of a joke
+    - Shana Aya died due to a railgun shot while she was standing on the upper part of the mirage spire after the butterflies repared one of the turrets
