@@ -8,3 +8,10 @@
     That faction would clash with the houses: Brantolote and Pyrope and bid coronate archduchess.
 
     - THE LEADER OF THAT ONYX FACTION WAS NOUZEN, the empire's cursed sword, the black generals. Guardians of House Adel-Adler and offspring of the destroyers.
+3. Chapter 2:
+    - The armee furieuse, the ghost rider is HUGE compared to the reginleifs
+    - The holy theocracy of Noiryanaruse 3rd army corps, shiga toura
+    - Offensive factory legion type is called: "Jiral Cuckoo"
+    - The commander of the third amry corp of the theocracy is Himmelnade Reze, a girl.
+    - Heliodor's psychic ability is to detect threats
+    - 
