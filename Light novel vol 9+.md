@@ -14,4 +14,9 @@
     - Offensive factory legion type is called: "Jiral Cuckoo"
     - The commander of the third amry corp of the theocracy is Himmelnade Reze, a girl.
     - Heliodor's psychic ability is to detect threats
-    - 
+    - Richard is Michihi's adoptive parent
+    - Ulfheonar: the exoskeletons worn by infantry who served as the consorts of the Myrmecoleo Free armored reg
+    - the Ulfheonar armor is polished red
+    - The Myrmecoleo children are of soldier households, their lord is house brantolote, a pyrope family
+    - Commander of brantolote archduchess's free armored regiment : Gunter/Gilwiese
+    - Himmelnade Reze is the "mascot"/emperial girl, another royal family from the empire of giad
