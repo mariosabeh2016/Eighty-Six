@@ -20,3 +20,4 @@
     - The Myrmecoleo children are of soldier households, their lord is house brantolote, a pyrope family
     - Commander of brantolote archduchess's free armored regiment : Gunter/Gilwiese
     - Himmelnade Reze is the "mascot"/emperial girl, another royal family from the empire of giad
+    - Gilwiese hated the image of powerless kurena, which was his image reflected on a mirror, within the shut-off halls of the Brantolote estate
