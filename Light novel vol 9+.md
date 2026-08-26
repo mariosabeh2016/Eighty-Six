@@ -30,4 +30,4 @@
     - Svenja is the empress that gilwiese was tasked to protect, she sees him as an older brother figure
     - Mitsuda is one of the commanders of the artillery configuration reginleifs battalions
     - House reze is the family of Hilna, which was slain in the beginning of the war by the saints (nobels) and she heard the entire thing through a transmission
-    - 
+    - The lyano-shu is manned by 10 year olds
