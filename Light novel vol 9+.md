@@ -24,4 +24,7 @@
 4. Interlude: 
     - Annette's mom died in the large scale offensive, her dad died way before that
 5. Chapter 4:
-    -
+    - Hilna turned her back to the 86, the entirety of the 3rd army corps shiga toura
+    - Theocracy's juggernauts are of 2 types, one manned and the other unmanned, 5 fah-maras and 7 lyano-shu; the recoilless
+    - All the theocracy was made up from child soldiers and from early 20s as commanders
+    - 
