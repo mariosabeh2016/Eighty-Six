@@ -27,4 +27,7 @@
     - Hilna turned her back to the 86, the entirety of the 3rd army corps shiga toura
     - Theocracy's juggernauts are of 2 types, one manned and the other unmanned, 5 fah-maras and 7 lyano-shu; the recoilless
     - All the theocracy was made up from child soldiers and from early 20s as commanders
+    - Svenja is the empress that gilwiese was tasked to protect, she sees him as an older brother figure
+    - Mitsuda is one of the commanders of the artillery configuration reginleifs battalions
+    - House reze is the family of Hilna, which was slain in the beginning of the war by the saints (nobels) and she heard the entire thing through a transmission
     - 
