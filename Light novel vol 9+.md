@@ -31,3 +31,11 @@
     - Mitsuda is one of the commanders of the artillery configuration reginleifs battalions
     - House reze is the family of Hilna, which was slain in the beginning of the war by the saints (nobels) and she heard the entire thing through a transmission
     - The lyano-shu is manned by 10 year olds
+    - (Not from this chapter but) zashya is a sirin commander or so
+    - At first the army of the theocracy was a group of hired men from the western nations, so those hired men were prioritizing their country instead of the theocracy (naturally)
+    - Noirya is a national religion, so they decided that the army would not be counted as its citizens, they were to protect the Shekha so the spear god: Teshat. They were not regarded as humans but as armaments. That's why the old empire and the UK of roa gracia regarded this country as a mad country
+    - Hilna reached a conclusion that would allow the entire theocracy be burned and consumed by war, since the elders and nobles/saints kept taking away everything from their army soldiers
+    - Hilna is what kurena could've been
+    - Hilna's plot of sanctionning the theocracy failed due to the para raid being activated and transmissioned the entire thing through the UK to the federacy, so the federacy pressured the higher ups of the theocracy
+    - Gilwiese name bearer is mock turtle (ant with a lion head)
+    - 
