@@ -31,7 +31,7 @@
     - Mitsuda is one of the commanders of the artillery configuration reginleifs battalions
     - House reze is the family of Hilna, which was slain in the beginning of the war by the saints (nobels) and she heard the entire thing through a transmission
     - The lyano-shu is manned by 10 year olds
-    - (Not from this chapter but) zashya is a sirin commander or so
+    - Zashya is a communation commander offering the strike package intel, her role was within the airborne battalion
     - At first the army of the theocracy was a group of hired men from the western nations, so those hired men were prioritizing their country instead of the theocracy (naturally)
     - Noirya is a national religion, so they decided that the army would not be counted as its citizens, they were to protect the Shekha so the spear god: Teshat. They were not regarded as humans but as armaments. That's why the old empire and the UK of roa gracia regarded this country as a mad country
     - Hilna reached a conclusion that would allow the entire theocracy be burned and consumed by war, since the elders and nobles/saints kept taking away everything from their army soldiers
@@ -41,3 +41,7 @@
     - The Teshat were the ones under hilna's command
     - The 3rd army corps kept protecting the black duck while they were pushing to reach the firing position, disobeying/ignoring the initial order of hilna
     - After the battle, gilwiese took svenja to the northern point of the area where the battle was, and she detected "IT", a threat. Svenja is a cross bread, a heliodor oracle. IT, however, ISN'T THE HALCYON, which was a decoy. IT, MIGHT BE the true Weisel
+    - Zashya found "IT", just as vika prescribed it to be, a looming tower, built in an the shape of an hexagonal prism
+    - Kurena confessed her feelings to shin, he apologized
+6. Epilogue:
+    -
