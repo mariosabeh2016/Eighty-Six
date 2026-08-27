@@ -38,4 +38,6 @@
     - Hilna is what kurena could've been
     - Hilna's plot of sanctionning the theocracy failed due to the para raid being activated and transmissioned the entire thing through the UK to the federacy, so the federacy pressured the higher ups of the theocracy
     - Gilwiese name bearer is mock turtle (ant with a lion head)
-    - 
+    - The Teshat were the ones under hilna's command
+    - The 3rd army corps kept protecting the black duck while they were pushing to reach the firing position, disobeying/ignoring the initial order of hilna
+    - After the battle, gilwiese took svenja to the northern point of the area where the battle was, and she detected "IT", a threat. Svenja is a cross bread, a heliodor oracle. IT, however, ISN'T THE HALCYON, which was a decoy. IT, MIGHT BE the true Weisel
