@@ -44,4 +44,4 @@
     - Zashya found "IT", just as vika prescribed it to be, a looming tower, built in an the shape of an hexagonal prism
     - Kurena confessed her feelings to shin, he apologized
 6. Epilogue:
-    -
+    - They found the shutdown location of the legion, a risky and big mission is about to get prepared for
