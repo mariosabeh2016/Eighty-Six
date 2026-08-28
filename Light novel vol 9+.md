@@ -2,11 +2,13 @@
     - The noctiluca went west towards the holy theocracy of noiryanaruse
     - Siri (2nd armored div captain)
     - Canaan (3rd armored div captain)
+
 2. Chapter 1:
     - Archduchess Brantolote thinks herself the queen of the new imperial line, sent out a regiment, myrmecoleo to die in the holy theocracy (one of the old nobels)
     - Ernst was backed by the Onyx family (pushed for democracy), that faction included: Richard altner family, and Willem Ehrenfried's 
     That faction would clash with the houses: Brantolote and Pyrope and bid coronate archduchess.
     - THE LEADER OF THAT ONYX FACTION WAS NOUZEN, the empire's cursed sword, the black generals. Guardians of House Adel-Adler and offspring of the destroyers.
+
 3. Chapter 2-3:
     - The armee furieuse, the ghost rider is HUGE compared to the reginleifs
     - The holy theocracy of Noiryanaruse 3rd army corps, shiga toura
@@ -21,8 +23,10 @@
     - Himmelnade Reze is the "mascot"/emperial girl, another royal family from the empire of giad
     - Gilwiese hated the image of powerless kurena, which was his image reflected on a mirror, within the shut-off halls of the Brantolote estate
     - Shiden iida had her sister die because she failed to protect her, also her parents died in the internment camps
+    
 4. Interlude: 
     - Annette's mom died in the large scale offensive, her dad died way before that
+
 5. Chapter 4:
     - Hilna turned her back to the 86, the entirety of the 3rd army corps shiga toura
     - Theocracy's juggernauts are of 2 types, one manned and the other unmanned, 5 fah-maras and 7 lyano-shu; the recoilless
@@ -43,5 +47,6 @@
     - After the battle, gilwiese took svenja to the northern point of the area where the battle was, and she detected "IT", a threat. Svenja is a cross bread, a heliodor oracle. IT, however, ISN'T THE HALCYON, which was a decoy. IT, MIGHT BE the true Weisel
     - Zashya found "IT", just as vika prescribed it to be, a looming tower, built in an the shape of an hexagonal prism
     - Kurena confessed her feelings to shin, he apologized
+    
 6. Epilogue:
     - They found the shutdown location of the legion, a risky and big mission is about to get prepared for
