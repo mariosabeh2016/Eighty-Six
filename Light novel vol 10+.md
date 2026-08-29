@@ -23,3 +23,6 @@
     - There was a one time where a squad mate took the grave markers and threw them in mud, shin made his face so unrecognizable. He was again 11 years of age, PROBABLY 12
     - Isuka died decapitated and his fingers cut off. His juggernaut was blasted and toppled over, his lower half was still hanging from the juggernaut
     - Shin missed the first shot, blew his ear off with the second, finished him with the third
+
+Chapter 3, Varlet:
+    - 
