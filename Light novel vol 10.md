@@ -17,4 +17,9 @@
     - Shin brought with him, from the 1st to the 2nd squardon, 23 grave markers
     
 3. Chapter 2, Misericorde:
-    -
+    - Isuka taught shin the necessity of putting someone out of their misery
+    - Isuka had known the handler one of their squadron, and requested scapegoats, shin was the scapegoat for the squardon at that time
+    - Since shin was the scapegoat of the squad and he had the ability and knowledge to fight the legion and survive each and every battle, no matter how difficult it was. He became a source of omen and so he became the so called reaper. By making shin the scapegoat, isuka made his squad members die even faster
+    - There was a one time where a squad mate took the grave markers and threw them in mud, shin made his face so unrecognizable. He was again 11 years of age, PROBABLY 12
+    - Isuka died decapitated and his fingers cut off. His juggernaut was blasted and toppled over, his lower half was still hanging from the juggernaut
+    - Shin missed the first shot, blew his ear off with the second, finished him with the third
