@@ -15,6 +15,7 @@
     - Alice's younger brother died due to a sickness he attracted when he was in the internment camp, he would be the same age was back then
     - Alice's former old captain was a republic's air force candidate, so he had to wear the scarf to protect his neck when turning his head to look for enemies because the neck would rub against the colar of the uniform
     - Shin brought with him, from the 1st to the 2nd squardon, 23 grave markers
+    - Shin disregarded the scarf so that lena wouldn't know about that old acquaintance
     
 3. Chapter 2, Misericorde:
     - Isuka taught shin the necessity of putting someone out of their misery
@@ -24,5 +25,8 @@
     - Isuka died decapitated and his fingers cut off. His juggernaut was blasted and toppled over, his lower half was still hanging from the juggernaut
     - Shin missed the first shot, blew his ear off with the second, finished him with the third
 
-Chapter 3, Varlet:
-    - 
+4. Chapter 3, Varlet:
+    - Shin gave the name fido to the scavenger and that name felt nostalgic to him. As if to say that when he was a child back in the 85 sector, his parents had a dog named fido and most probably it was a mechanical one like a scavenger
+
+5. Chapter 4, Brand:
+    -
