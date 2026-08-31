@@ -41,4 +41,8 @@
     - The tausendfubler was the garbage collecting unit for the legion, it was a large metallic centipede
     
 7. Chapter 6, Culpa:
+    - Shin had the habbit of reading because of the priest, riverend, which they had a library with a long history so the priests had amassed a large quantity of books filling a library. Reverend was an officer in the 85 district
+    - Rei nouzen "killed" his brother when he was around 8 or 9 years old
+    - The priest had taught him how to handle a gun and even hunt without it
+    - Shin was afraid of his higher ups when he was a kid due to him beind traumatized because of his brother
     - 
