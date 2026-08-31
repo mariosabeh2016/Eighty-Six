@@ -1,7 +1,7 @@
 1. Epigraph:
     - Alice Araish: Captain of the first squadron shin was assigned to, she was bighearted and taught many valuable lessons
     - Isuka Rani: Shin's captain after he was asigned to another squadron, a sly realist, taught shin the most difficult lesson 
-    - Saiki: Vice captain of a squadron which shin served as captain 
+    - Saiki Tateha: Vice captain of a squadron which shin served as captain 
     - Touka: Head of maintenance team in one of the shin assigned squadron, she watched over shin's first meeting with fido
     - Eijyu Nunat: Captain of the squadron which shin served as vice captain, attempted to think of a personal name for shin
 
@@ -36,4 +36,9 @@
     - Shin had used the persenal mark of the grim reaper for 6 years, he's probably 18 then
 
 6. Chapter 5, Undertaker:
-    -
+    - Shin served as captain of the squadron that he served in prior to the one that Saiki was in.
+    - He once returned from a battalion of 4 squadrons, a offensive mission to push back a counter-attack of the legion
+    - The tausendfubler was the garbage collecting unit for the legion, it was a large metallic centipede
+    
+7. Chapter 6, Culpa:
+    - 
