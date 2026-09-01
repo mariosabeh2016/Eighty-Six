@@ -54,4 +54,9 @@
     - Kujo died right before lena was assigned to their squadron as handler one
 
 9. Chapter 8, The blanks of the lethe:
+    - Shin's brother was number 576 between the dead comerade's grave markers he carried
+    - Kurena was born in one of the northern secondary capital's, the charite's cities
+    - Theo was born on the other side of the republic, near the old southern border
+    - Anju was born in a small eastern city
+    - Raiden was from what was then, the 32nd administrative sector
     - 
