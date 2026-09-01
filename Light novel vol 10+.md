@@ -59,4 +59,10 @@
     - Theo was born on the other side of the republic, near the old southern border
     - Anju was born in a small eastern city
     - Raiden was from what was then, the 32nd administrative sector
+    - Shourei nouzen's ghost did follow shin before he reached the empire and saved him. He cheated "death" using a glitch in the system of the legion
+
+10. Chapter 9, Fido:
+    - 
+
+11. Chapter 10, A kind world:
     - 
