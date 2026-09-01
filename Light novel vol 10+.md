@@ -45,4 +45,12 @@
     - Rei nouzen "killed" his brother when he was around 8 or 9 years old
     - The priest had taught him how to handle a gun and even hunt without it
     - Shin was afraid of his higher ups when he was a kid due to him beind traumatized because of his brother
+
+8. Chapter 7, Simple days of triage black tag:
+    - In each base, there's a medical unit that would diagnose each and every illness and injuries for the processors
+    - Shin and the spearhead squadron knew about lena being their new handler ahead of time due to their shitty previous handler
+    - Kujo wished for shin someone who can occupy the void in his heart, remembering the previous handler who told them about their new female hander
+    - The spearhead squardon hear the voice of Lena before she even was their handler, because she requested support from them before the battle began
+
+9. Chapter 8, The blanks of the lethe:
     - 
