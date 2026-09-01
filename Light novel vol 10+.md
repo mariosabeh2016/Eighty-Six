@@ -51,6 +51,7 @@
     - Shin and the spearhead squadron knew about lena being their new handler ahead of time due to their shitty previous handler
     - Kujo wished for shin someone who can occupy the void in his heart, remembering the previous handler who told them about their new female hander
     - The spearhead squardon hear the voice of Lena before she even was their handler, because she requested support from them before the battle began
+    - Kujo died right before lena was assigned to their squadron as handler one
 
 9. Chapter 8, The blanks of the lethe:
     - 
