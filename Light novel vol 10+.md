@@ -77,4 +77,6 @@
     - Yunna Maika is the name of shin's mother and Reisha Nouzen is his father's name
 
 11. Chapter 10, A kind world:
-    - 
+    - Little shin had a date with henritta
+    - Shin and Rei had the power of their mother passed to both of them, that's why they were able to communated even "after" death, and at the very end of their battle
+    - Daffodils was the scent of the flower which shin offered to rita on a date that maybe was in a dream of hers currently at rustkammer base
