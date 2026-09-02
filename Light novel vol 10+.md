@@ -62,7 +62,19 @@
     - Shourei nouzen's ghost did follow shin before he reached the empire and saved him. He cheated "death" using a glitch in the system of the legion
 
 10. Chapter 9, Fido:
-    - 
+    - Fido is of a prototype called 008
+    - Shin's father built fido based on a copy of shin's brain waves using a container that shin used to hug
+    - Fido's model was based on a UK research by the Amethystus generation back then 
+    - Zelene knew shin's father but he didn't want to make a weaponized model
+    - Fido, the AI model was containerized in the shape of a dog, had to see the soldiers of the republic come and take away the family to the internment camps. So it set a goal to find them again and protected them, it connected to the network and knew where they were and transfered it's consciousness to the mechanical scavenger
+    - Fido didn't recognize shin as the child shin that gave him the name fido (when he was containerized as a dog).
+    Probably because of it never hearing the family name of nouzen and his name was shinei not shin
+
+    The parent's tale:
+    - Shin's mother, had the ability to communate through thoughts directly without any device, she was from the house Maika and she met Reisha Nouzen on the battlefield 
+    - Joseph, most probably the father of henritta penrose, was the aid to shin's father in creating the para raid
+    - Shin's mother was afraid that if reproducing her ability would cause the same thing to re occur. That is perfectly synchronizing an entire military unit with the queen bee, the crimson witch
+    - Yunna Maika is the name of shin's mother and Reisha Nouzen is his father's name
 
 11. Chapter 10, A kind world:
-    - 
+    -  
