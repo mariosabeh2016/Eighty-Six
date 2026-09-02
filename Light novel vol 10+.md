@@ -77,4 +77,4 @@
     - Yunna Maika is the name of shin's mother and Reisha Nouzen is his father's name
 
 11. Chapter 10, A kind world:
-    -  
+    - 
