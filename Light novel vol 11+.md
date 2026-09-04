@@ -5,7 +5,7 @@
     - During the revolution in the giadian empire, their satellites were given the self destruct command leading to debris circulating earths orbit
     - The legion managed to build satellite launchers and one launch site was the mirage spire since it had vertically pointed rails
 
-2. D-Day+:
+2. D-Day and D-Day +2:
     - The federacy was impacted on it's second southern front at 12:17AM
     - Regicide fleet defensive lines at 12:22AM
     - The federacy second nothern lines and first southern line was impacted at 12:25AM
@@ -34,3 +34,6 @@
     - My toughts are that maybe the legion are condensing the people into a tiny areas within their countries where they'll bombard
     - Tohru and Claude are the captains of the spearhead squadron 3rd and 4th platoons
     - Claude had red hair inherited from his mother, she had nobel mixed imperial blood. He also had moon eyes which he coverd using a glasses without lenses
+
+3. Start of the legion war and D-Day +3+:
+    - 
