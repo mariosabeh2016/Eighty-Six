@@ -29,4 +29,5 @@
     - All federacy fronts bring fighting to a stalemate in reserve defensive lines at 23:49PM
     
     - The bombardment above was produced by satellites, launched using the railguns produced by the legion
+    - The evacuation for the citizens of the farming lands were rough because it was overnight and unprecedented so they restisted, only to be dragged and having guns pointed at them
     - 
