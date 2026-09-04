@@ -30,4 +30,7 @@
     
     - The bombardment above was produced by satellites, launched using the railguns produced by the legion
     - The evacuation for the citizens of the farming lands were rough because it was overnight and unprecedented so they restisted, only to be dragged and having guns pointed at them
-    - 
+    - Dustin lost his father in the first legion large scale attack
+    - My toughts are that maybe the legion are condensing the people into a tiny areas within their countries where they'll bombard
+    - Tohru and Claude are the captains of the spearhead squadron 3rd and 4th platoons
+    - Claude had red hair inherited from his mother, she was from imperial blood and moon eyes probably from his father
