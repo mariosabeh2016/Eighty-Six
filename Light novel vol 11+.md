@@ -27,3 +27,6 @@
     - The federacy third northern front successfully retreats to a reserve defensive line's area at 21:49PM
     - All federacy fronts halt the legion advance at 22:54PM
     - All federacy fronts bring fighting to a stalemate in reserve defensive lines at 23:49PM
+    
+    - The bombardment above was produced by satellites, launched using the railguns produced by the legion
+    - 
