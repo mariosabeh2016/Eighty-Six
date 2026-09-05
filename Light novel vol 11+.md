@@ -36,4 +36,5 @@
     - Claude had red hair inherited from his mother, she had nobel mixed imperial blood. He also had moon eyes which he coverd using a glasses without lenses
 
 3. Start of the legion war and D-Day +3+:
+    - Grethe might pilot a reginleif in this fight, so she asked to borrow knowledge/get trained by vika
     - 
