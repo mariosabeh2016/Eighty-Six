@@ -37,4 +37,8 @@
 
 3. Start of the legion war and D-Day +3+:
     - Grethe might pilot a reginleif in this fight, so she asked to borrow knowledge/get trained by vika
+    - The republic alba were split ento 3 ethnic groups: celena, albaster and adularia. Claude is adularia
+    - The celena group is the worst, the always try to force their wars onto someone else. They are trying to go first in the evacuation leaving the albaster or the adularia last
+    
+4. The fall of the liberte et egalite:
     - 
