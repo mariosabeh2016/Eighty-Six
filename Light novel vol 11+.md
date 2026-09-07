@@ -41,4 +41,4 @@
     - The celena group is the worst, the always try to force their wars onto someone else. They are trying to go first in the evacuation leaving the albaster or the adularia last
     
 4. The fall of the liberte et egalite:
-    - 
+    - When shiden first met lena, there was a scareoff for the colorata using the sawed-off that shiden carried or grabbed...
