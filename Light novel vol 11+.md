@@ -49,4 +49,5 @@
     - The location to which the trains were transporting the troops was the south of the federacy, it was a convergance of roads and the gate to sank jeder
     - The republic "blamed" the second large scale and the evacuation on the bleachers, but their leader figure, Ms primevere, took the first train to evacuate along with the gov officials
     - Kampf pfau, the improved version of the Trauerschwan, featuring multiple railguns places together, in order to compensate for the inaccuracy  on a rail
+    - Rito's juggernaut was maintained by the same alba which maintained shin's when he was in the spearhead squadron. That alba had a wife and daughters (which were froced to fight in the 86 sectors) and his final words were "I'm sorry" before a legion unit killed him. He also sought, (after he died), revenge on the republic citizens with his own hands
     - 
