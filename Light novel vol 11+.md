@@ -47,4 +47,5 @@
     - During the evaction, the refugees were always fighting with republic soldiers which roles were to ensure the evacuation was going according to plan
     - Claude Knot's big brother was a handler one, he was an alba and born from his father's first marriage. He was the handler of the squadron which contained claude and tohru even before the large scale. Thus confirming their personal names: jabberwock and bandersnatch
     - The location to which the trains were transporting the troops was the south of the federacy, it was a convergance of roads and the gate to sank jeder
+    - The republic "blamed" the second large scale and the evacuation on the bleachers, but their leader figure, Ms primevere, took the first train to evacuate along with the gov officials
     - 
