@@ -52,4 +52,6 @@
     - Rito's juggernaut was maintained by the same alba which maintained shin's when he was in the spearhead squadron. That alba had a wife and daughters (which were froced to fight in the 86 sectors) and his final words were "I'm sorry" before a legion unit killed him. He also sought, (after he died), revenge on the republic citizens with his own hands
     - Aldretch (the maintenance leader for the spearhead squadron) was assimilated by a lowe
     - The main aramemnt of the dinosauria had a flamethrower...
+    - Ardretch hesitated when sticking down a alba woman (probably like his late wife) which made rito take that opening and end his life
+    - The core of the current legion control network, shepherds, used every logic and action possible to avoid the initial order (find a new commander) for them. So what they were currently doing was fulfilling their wishes --Not as legion but their own desires
     - 
