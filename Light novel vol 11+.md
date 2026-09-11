@@ -54,4 +54,10 @@
     - The main aramemnt of the dinosauria had a flamethrower...
     - Ardretch hesitated when sticking down a alba woman (probably like his late wife) which made rito take that opening and end his life
     - The core of the current legion control network, shepherds, used every logic and action possible to avoid the initial order (find a new commander) for them. So what they were currently doing was fulfilling their wishes --Not as legion but their own desires
-    - 
+
+6. Less than an hour into the first large scale (Republic):
+    - The sectors wouldn't be informed before the celena (frist sector) evacuated because they were nobles 
+    - Lena's mother came to her to escort her to safety because she didn't want to see her daughter face the same ending as her husband. But lena couldn't, they ended up on a bad note only for lena to later on know that her mother passed away trying to protect a young child from being stomped out
+
+7. D-Day +11:
+    -
