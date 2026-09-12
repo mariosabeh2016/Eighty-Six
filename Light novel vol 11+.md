@@ -60,4 +60,6 @@
     - Lena's mother came to her to escort her to safety because she didn't want to see her daughter face the same ending as her husband. But lena couldn't, they ended up on a bad note only for lena to later on know that her mother passed away trying to protect a young child from being stomped out
 
 7. D-Day +11:
-    -
+    - After the legion's rail bombardment, major Richard Altner sought out loud what was correct, both as tools for politics and members of either the republic or federacy. Ordering his subordinates not to die but also to try saving as much as they can while correcting their thoughts
+    - Saki's grimalkin reginleif with a personal mark of a winged cat, which lena was boarding opened for lena to answer the old woman's tired feet
+    - 
