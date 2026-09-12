@@ -62,4 +62,14 @@
 7. D-Day +11:
     - After the legion's rail bombardment, major Richard Altner sought out loud what was correct, both as tools for politics and members of either the republic or federacy. Ordering his subordinates not to die but also to try saving as much as they can while correcting their thoughts
     - Saki's grimalkin reginleif with a personal mark of a winged cat, which lena was boarding opened for lena to answer the old woman's tired feet
-    - 
+    - Richard died by pulling the trigger of his sidearm to ensure he wasn't consumed by the legion
+
+8. D-Day +18:
+    - The UK drangon mountain range foot reserves had fallen
+
+9. The first sector (2 days into the large scale offensive):
+    - Karlstahl had his stomach severed
+    - Viklav was assimilated
+
+10. Afterword:
+    - Willem was charged by war crimes that were prepared by his superiors in ranks commited. Some bigwig in the central joint chiefs of staff tried to take responsibility by committing suicide only to be stopped by those around him
