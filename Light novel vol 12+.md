@@ -9,4 +9,6 @@
     - The current nouzen family head is named seiei nouzen, his children all died or absconded
     - Maybe a reminder but: shin's grand mother is marquess gelda maika
     - Shin grandparents didn't want him to be burdened by the family name and they wanted for him to be loved unconditionally
+    - The republic took 86 children, implated the raid devices in them, tortured them/killed them/raped them, while having other children go through their feelings and senses at the moment of their torture. Only to return the surviving ones to the internment camps
+    - These children were used by the legion to gain infromation that was considered to be classified, like where the strike package was on the battlefield
     - 
