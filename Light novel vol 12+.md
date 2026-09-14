@@ -16,4 +16,8 @@
 
 2. Chapter 2:
     - Niam mialona is the commander of the blue print regiment, first regiment of the 37th armored division in the second northern front
+    - Colonel ismael is on this mission with them also, he survived
+    - Esther the vice captain of ismael passed away
+    - A dinosauria was still alive in this battle field, he was aldrech
+    - Vika parents are alive but his brother boris passed away, his was his half brother from a different mother
     - 
