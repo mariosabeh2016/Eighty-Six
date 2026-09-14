@@ -20,4 +20,4 @@
     - Esther the vice captain of ismael passed away
     - A dinosauria was still alive in this battle field, he was aldrech
     - Vika parents are alive but his brother boris passed away, his was his half brother from a different mother
-    - 
+    - Nuclear power is the house of mialona's study, and the leutenant colonel Mialona is probably mentally ill
