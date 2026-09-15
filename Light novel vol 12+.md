@@ -21,3 +21,11 @@
     - A dinosauria was still alive in this battle field, he was aldrech
     - Vika parents are alive but his brother boris passed away, his was his half brother from a different mother
     - Nuclear power is the house of mialona's study, and the leutenant colonel Mialona is probably mentally ill
+    - Noele was the heir to house Rohi, house Rohi were the vassals to house Mialona
+    - They, the lady bluebird regiment and the 2nd armored company were wiped out by a leviathan that appeared in the tataswa floodway
+
+3. Chapter 3:
+    - Amari is the subordinate of Yuuto
+    - Citri is te 86 who came to pick up a younger relative of hers, yuuto went and talked to her
+    - Her little sister got arrested as a wiretrap
+    - 
