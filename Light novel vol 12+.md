@@ -28,4 +28,8 @@
     - Amari is the subordinate of Yuuto
     - Citri is te 86 who came to pick up a younger relative of hers, yuuto went and talked to her
     - Her little sister got arrested as a wiretrap
+    - The rabe callsign is firefly
+    - New type of legion spotted on the other side of the arched dam. It's big, had some sort of pliers hanging from it's neck and it had wings. It might be an air unit as it was described as a winged beast
+
+4. Chapter 4:
     - 
