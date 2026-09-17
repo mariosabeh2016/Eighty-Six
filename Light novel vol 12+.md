@@ -32,4 +32,15 @@
     - New type of legion spotted on the other side of the arched dam. It's big, had some sort of pliers hanging from it's neck and it had wings. It might be an air unit as it was described as a winged beast
 
 4. Chapter 4:
+    - The Aranea is the name given to the new legion unit by the strike package
+    - It was like a crane with giant "pliers" meant for disassembling parts and they were powerful. It also had wings with jibs and masts in its rear as sub-beams which were able to be swung freely
+    - The legion used the camouflage on the tank type lowe to hide them and make them way harder to destroy since their frontal armor was the thickest
+    - The legion here had dinosaurias as well, in shut down mode. They were ferried to their current position in the month prior to the second large scale offensive while evading shin's ability 
+    - A boat ferried the dinosaurias from north to their current position. A dozen kilos away, there was a weisel
+    - The aranea had sensors on each of it's legs granting it vision of the ruins below the water so that it would be able to lift itself up and fight with everything it had
+    - Shin and kurena, with the help of all the other artillery squadrons, managed to make it lose balance and eventually defeat it
+    - Canaan's family name is Nyuud
+    - The mission went according to plan and now they were going to get the nuclear fuel, Lieutenant Colonel Mialona was on it
+
+5. Chapter 5:
     - 
