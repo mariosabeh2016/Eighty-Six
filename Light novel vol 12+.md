@@ -43,4 +43,7 @@
     - The mission went according to plan and now they were going to get the nuclear fuel, Lieutenant Colonel Mialona was on it
 
 5. Chapter 5:
-    - 
+    - Herny Knot is the brother of Claude, he's now a lieutenant
+    - The internment camps started when he was 17 so he wasn't able to do anything
+    - The tausendfusler or whatever centipede thing can decontaminate areas
+    -  
