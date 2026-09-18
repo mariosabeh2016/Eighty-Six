@@ -46,4 +46,10 @@
     - Herny Knot is the brother of Claude, he's now a lieutenant
     - The internment camps started when he was 17 so he wasn't able to do anything
     - The tausendfusler or whatever centipede thing can decontaminate areas
-    -  
+    - Miel (as in honey) is the son of the late captain of theo which name was Syvain (forest fox), which is located in the western frontier from sank jeder currently. The fox personal mark was because the family name was renard
+    - Some acateon escaped the federacy (the people who were probably classified as wiretraps)
+
+6. Epilogue:
+    - Citri is an acateon, one of the tortured 86 by the republic and not having fought on the battlefield
+    - Citri and her other comerades had the wish that Yuuto have heard so many times when he was in the 86 sector and it was about how to get back home, to the republic
+    - Citri knows dustin and his family name, jaeger
