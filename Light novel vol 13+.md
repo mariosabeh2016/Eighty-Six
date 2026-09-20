@@ -14,4 +14,5 @@
     - Yuuto had silvery hair with slightly orangish dusk colored red eyes
 
 1. Chapter 1:
+    - The operation to seize the base containing the shutdown broadcast device was planned and postpointed prior to the 2nd large scale offensive, operation Overlord
     - 
