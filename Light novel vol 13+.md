@@ -15,4 +15,4 @@
 
 1. Chapter 1:
     - The operation to seize the base containing the shutdown broadcast device was planned and postpointed prior to the 2nd large scale offensive, operation Overlord
-    - 
+    - The squadrons that are to be despatched to operation overlord are from the 1st armored division all the way to the 4th probably, along with the 7 battalions with infantry from the vargus civillians that are being trained in Fortrapide city
