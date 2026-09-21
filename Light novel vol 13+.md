@@ -17,3 +17,6 @@
     - The operation to seize the base containing the shutdown broadcast device was planned and postpointed prior to the 2nd large scale offensive, operation Overlord
     - The squadrons that are to be despatched to operation overlord are from the 1st armored division all the way to the 4th probably, along with the 7 battalions with infantry from the vargus civillians that are being trained in Fortrapide city
     - Locan is the 7th battalion commander while Kunoe is the captain of the 6th
+    - If the rabe were to move in to operate in place of the satellite in case it was lost, the one that's been used to relay information from the shutdown base would confirm the satellite in question. And so, locating it wouldn't be hard since the federacy can verify which once were in orbit before the large scale offensive and are still currently active
+    - The interrogators took turns repeating the names of imperial or important figures when they were alive to see if zelene would repeat that name or not in order to know if that name corresponded to a current shepherd
+    - 
