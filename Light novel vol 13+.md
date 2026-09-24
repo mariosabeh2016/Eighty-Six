@@ -22,4 +22,8 @@
     - In operation overlord imperials like pyropes and onyx, including archduchess brantolote would be sending their subordinates so the strike package would always be around frederica to protect her
     - Yatrai and Joschka were discussing, with the strikke package, who was going to participate in operation overlord, Yatrai informed that house maika decided to send out Joschka's strix division 
     - Yatrai is married to a daughter from a major house nouzen branch, she is the vice commander of the crazy bones division
+    - Saki, yuuto's substitue commander of the 4th battalion in his absense, had long black bangs, golden eyes and a lithe feline physique
+    - Yuuto told amari to cover for him when we went to help citri and her group
+    - An acateon might have caused the explostion, and the news of the explosion said that the explosion was unexplained which made yuuto deduce that amari's word wasn't trusted
+    - Shin informed Joschka that one of the eastern countries must have fallen due to the increase in the legion numbers on the federacy's western front
     - 
