@@ -20,7 +20,7 @@
     - If the rabe were to move in to operate in place of the satellite in case it was lost, the one that's been used to relay information from the shutdown base would confirm the satellite in question. And so, locating it wouldn't be hard since the federacy can verify which once were in orbit before the large scale offensive and are still currently active
     - The interrogators took turns repeating the names of imperial or important figures when they were alive to see if zelene would repeat that name or not in order to know if that name corresponded to a current shepherd
     - In operation overlord imperials like pyropes and onyx, including archduchess brantolote would be sending their subordinates so the strike package would always be around frederica to protect her
-    - Yatrai and Joschka were discussing, with the strikke package, who was going to participate in operation overlord, Yatrai informed that house maika decided to send out Joschka's strix division 
+    - Yatrai and Joschka were discussing, with the strikke package over para raid, who was going to participate in operation overlord, Yatrai informed that house maika decided to send out Joschka's strix division 
     - Yatrai is married to a daughter from a major house nouzen branch, she is the vice commander of the crazy bones division
     - Saki, yuuto's substitue commander of the 4th battalion in his absense, had long black bangs, golden eyes and a lithe feline physique
     - Yuuto told amari to cover for him when we went to help citri and her group
