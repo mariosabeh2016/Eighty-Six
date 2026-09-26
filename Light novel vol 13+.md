@@ -26,4 +26,7 @@
     - Yuuto told amari to cover for him when we went to help citri and her group
     - An acateon might have caused the explostion, and the news of the explosion said that the explosion was unexplained which made yuuto deduce that amari's word wasn't trusted
     - Shin informed Joschka that one of the eastern countries must have fallen due to the increase in the legion numbers on the federacy's western front
+    - The rivalries in the federacy were present in the past, between pyropes and onyxes and prejudice toward the vargus. The was also the division between the vassals and the serfs and within the vassals ther was antagonism between the lola and the taafe
+    - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried
+    - 3 of the terrorist bombers were 86: Hina Shinaga, Saya Hiyo, Yukiri Hakuro
     - 
