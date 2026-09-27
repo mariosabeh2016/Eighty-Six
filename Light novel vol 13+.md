@@ -29,4 +29,5 @@
     - The rivalries in the federacy were present in the past, between pyropes and onyxes and prejudice toward the vargus. The was also the division between the vassals and the serfs and within the vassals ther was antagonism between the lola and the taafe
     - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried
     - 3 of the terrorist bombers were 86: Hina Shinaga, Saya Hiyo, Yukiri Hakuro
+    - Primevere, the leader of the bleachers or whatever, spoke about how they created human self-propelled mines using the 86 in a secret research facily/ies. these facilities contained or were connected to high-ranking officials as well as government officials from the republic
     - 
