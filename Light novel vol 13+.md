@@ -27,7 +27,13 @@
     - An acateon might have caused the explostion, and the news of the explosion said that the explosion was unexplained which made yuuto deduce that amari's word wasn't trusted
     - Shin informed Joschka that one of the eastern countries must have fallen due to the increase in the legion numbers on the federacy's western front
     - The rivalries in the federacy were present in the past, between pyropes and onyxes and prejudice toward the vargus. The was also the division between the vassals and the serfs and within the vassals ther was antagonism between the lola and the taafe
-    - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried
+    - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried and his subordinate jonas, who arrested annette
     - 3 of the terrorist bombers were 86: Hina Shinaga, Saya Hiyo, Yukiri Hakuro
     - Primevere, the leader of the bleachers or whatever, spoke about how they created human self-propelled mines using the 86 in a secret research facily/ies. these facilities contained or were connected to high-ranking officials as well as government officials from the republic
+    - Albaster and adularia were subordinates to the Celena which created the human self prop mines
+    - The acateon were used to dispose any of the surviving 86
+    - Before vika was born, there was a footage showing a big scuttering in a panic due to cells rapidly devouring adipocytes and since the republic boasted of countless livestock and they were more than the population itself. they would be used on tests
+    - The republic also went further since the legion war was "within their eyes" at the end of it, they were going to use these weapons to begin antipersonnel combat
+    - The REPUBLIC IS the WORST
+    - Lena and annette were celena, for that reason grethe wouldn't allow them to go back to the frontlines and so they placed soldiers to serve and guard them
     - 
