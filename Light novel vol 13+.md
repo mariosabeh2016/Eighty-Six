@@ -36,4 +36,5 @@
     - The republic also went further since the legion war was "within their eyes" at the end of it, they were going to use these weapons to begin antipersonnel combat
     - The REPUBLIC IS the WORST
     - Lena and annette were celena, for that reason grethe wouldn't allow them to go back to the frontlines and so they placed soldiers to serve and guard them
+    - The legion are now targeting the reserved republic forces and the 10 federacy fronts using morphos and Nidhogg (a former 86 seeking revenge), guided by No Face (Vaclav Milize).
     - 
