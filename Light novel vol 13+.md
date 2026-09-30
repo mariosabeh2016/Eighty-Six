@@ -37,4 +37,7 @@
     - The REPUBLIC IS the WORST
     - Lena and annette were celena, for that reason grethe wouldn't allow them to go back to the frontlines and so they placed soldiers to serve and guard them
     - The legion are now targeting the reserved republic forces and the 10 federacy fronts using morphos and Nidhogg (a former 86 seeking revenge), guided by No Face (Vaclav Milize).
+
+2. Chapter 2:
+    - The other by-products that the researches conducted by the republic in order to create the human bombs were the fertilizers and other agricultural plants used in many countries
     - 
