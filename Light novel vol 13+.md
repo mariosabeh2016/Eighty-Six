@@ -41,4 +41,7 @@
 2. Chapter 2:
     - The other by-products that the researches conducted by the republic in order to create the human bombs were the fertilizers and other agricultural plants used in many countries
     - Amari Mill told dustin about citri and he was in a rush to go catch up with her and yuuto but anju managed to knock him back to his senses and know that even if he had everything prepared, he wouldn't be able to make the one way trip. Anju MIGHT help him get to them
+    - The acateon were to blow up by a set time (initially in december), 1 month from now
+    - Grethe and Willem are doing the right thing atm, and that's to keep lena and rita safe (in custody)
+    - Dustin might not catch up to Citri
     - 
