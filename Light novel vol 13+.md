@@ -46,4 +46,5 @@
     - Dustin might not catch up to Citri
     - Citri community memebers origins: Kiki was born in a town with many old steeples, Shiohi was born in a village where the mountains of the alliance were visible, Karine grew up in the southern vice capital of Euzitria, Imeno spoke seas of golden swaying wheat, Ashiha told of days spent looking after sheep
     - Citri was fine not meeting up with Dustin if that meeting would burden him with a curse in its own way
+    - Sank Jeder was being more and more filled with refugees and it's original citizens were starting fights with them due to the entire situation going from bad to worse
     - 
