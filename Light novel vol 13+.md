@@ -50,4 +50,6 @@
     - Miel was from the republic and with everything regarding the bombings and the war, he thought that the federacy came hate the republic even more
     - House degen carries the kind of power among the onyxes that allows them to hear a lot more
     - The republic might be hiding something else other than the wiretraps and the human-suicide bombs
+    - The captain and the vice captain were in on a discrimination mission (sending the republic reservists to a mine field), so Henry, a republic soldier stood up to this and faced the first lieutenant Simoni Kareli. So he started pointing at him and the other so that they wouldn't hide in groups
+    - Olivia, Raiden, Reverend, Shiden as well as other soldier like Marcel and more participated in a brawling practice in maneuvering grounds in order for shin to vent out steam
     - 
