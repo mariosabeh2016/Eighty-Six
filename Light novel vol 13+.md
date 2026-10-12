@@ -52,4 +52,4 @@
     - The republic might be hiding something else other than the wiretraps and the human-suicide bombs
     - The captain and the vice captain were in on a discrimination mission (sending the republic reservists to a mine field), so Henry, a republic soldier stood up to this and faced the first lieutenant Simoni Kareli. So he started pointing at him and the other so that they wouldn't hide in groups
     - Olivia, Raiden, Reverend, Shiden as well as other soldier like Marcel and more participated in a brawling practice in maneuvering grounds in order for shin to vent out steam
-    - 
+    - Dustin is fucking up stuff, being with Citri or Anju so Amari finally told him that she didn't ask for him to save her
