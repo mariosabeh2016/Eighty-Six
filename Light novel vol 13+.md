@@ -27,7 +27,7 @@
     - An acateon might have caused the explostion, and the news of the explosion said that the explosion was unexplained which made yuuto deduce that amari's word wasn't trusted
     - Shin informed Joschka that one of the eastern countries must have fallen due to the increase in the legion numbers on the federacy's western front
     - The rivalries in the federacy were present in the past, between pyropes and onyxes and prejudice toward the vargus. The was also the division between the vassals and the serfs and within the vassals ther was antagonism between the lola and the taafe
-    - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried and his subordinate jonas, who arrested annette
+    - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried and his subordinate jonas degen, who arrested annette
     - 3 of the terrorist bombers were 86: Hina Shinaga, Saya Hiyo, Yukiri Hakuro
     - Primevere, the leader of the bleachers or whatever, spoke about how they created human self-propelled mines using the 86 in a secret research facily/ies. these facilities contained or were connected to high-ranking officials as well as government officials from the republic
     - Albaster and adularia were subordinates to the Celena which created the human self prop mines
@@ -48,3 +48,6 @@
     - Citri was fine not meeting up with Dustin if that meeting would burden him with a curse in its own way
     - Sank Jeder was being more and more filled with refugees and it's original citizens were starting fights with them due to the entire situation going from bad to worse
     - Miel was from the republic and with everything regarding the bombings and the war, he thought that the federacy came hate the republic even more
+    - House degen carries the kind of power among the onyxes that allows them to hear a lot more
+    - The republic might be hiding something else other than the wiretraps and the human-suicide bombs
+    - 
