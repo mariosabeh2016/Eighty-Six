@@ -53,5 +53,6 @@
     - The captain and the vice captain were in on a discrimination mission (sending the republic reservists to a mine field), so Henry, a republic soldier stood up to this and faced the first lieutenant Simoni Kareli. So he started pointing at him and the other so that they wouldn't hide in groups
     - Olivia, Raiden, Reverend, Shiden as well as other soldier like Marcel and more participated in a brawling practice in maneuvering grounds in order for shin to vent out steam
     - Dustin is fucking up stuff, being with Citri or Anju so Amari finally told him that she didn't ask for him to save her
-    - Lord nouzen came to Lena and Annette to question them about the freedom and equality, hence they were from the republic and their flag embodied those meanings. He was about 20 years old, bore the insignia of a sekeletal hand gripping a longsword, had a sharp and cruel gaze with a physique of a warrior. He was also a higher rank than Jonas, who was "protecting" Lena and Annette
+    - Lord nouzen Yatrai came to Lena and Annette to question them about the freedom and equality, hence they were from the republic and their flag embodied those meanings. He was about 20 years old, bore the insignia of a sekeletal hand gripping a longsword, had a sharp and cruel gaze with a physique of a warrior. Yatrai was also a higher rank than Jonas, who was "protecting" Lena and Annette
+    - The reservist eventually chose to save their own lives than the lives of the federacy emperials/vargus... so they retreated from the front lines
     - 
