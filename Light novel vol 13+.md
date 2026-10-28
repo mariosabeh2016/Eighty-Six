@@ -58,4 +58,5 @@
     - The federacy frontlines were beginning to fall more and more due to delayed reinforcements and not so well trained reservist as well as the fear of the human self exploding bombs PLUS the new self propelled mines of the legion that look like babies
     - Retreating soldiers fired on their allies and so the military of the federacy shattered into small groups fighting against each other instead of a single unit fighting as one
     - With more frontlines falling, the now frontline became rustkammer base
+    - The current position the stike package were to be in was in the strip to the west of the Zasifanoksa Forest
     - 
