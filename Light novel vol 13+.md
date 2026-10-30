@@ -38,7 +38,7 @@
     - Lena and annette were celena, for that reason grethe wouldn't allow them to go back to the frontlines and so they placed soldiers to serve and guard them
     - The legion are now targeting the reserved republic forces and the 10 federacy fronts using morphos and Nidhogg (a former 86 seeking revenge), guided by No Face (Vaclav Milize).
 
-2. Chapter 2:
+2. Chapter 2-3:
     - The other by-products that the researches conducted by the republic in order to create the human bombs were the fertilizers and other agricultural plants used in many countries
     - Amari Mill told dustin about citri and he was in a rush to go catch up with her and yuuto but anju managed to knock him back to his senses and know that even if he had everything prepared, he wouldn't be able to make the one way trip. Anju MIGHT help him get to them
     - The acateon were to blow up by a set time (initially in december), 1 month from now
@@ -58,5 +58,8 @@
     - The federacy frontlines were beginning to fall more and more due to delayed reinforcements and not so well trained reservist as well as the fear of the human self exploding bombs PLUS the new self propelled mines of the legion that look like babies
     - Retreating soldiers fired on their allies and so the military of the federacy shattered into small groups fighting against each other instead of a single unit fighting as one
     - With more frontlines falling, the now frontline became rustkammer base
-    - The current position the stike package were to be in was in the strip to the west of the Zasifanoksa Forest
+    - The next position of the strike package are to be deployedi in was the strip to the west of the Zasifanoksa Forest
+    - When the line was retreating, reservists had guns pointed at them by civillians which survived 2 offensives. Meanwhile the bleachers broke out of the prison from sank jeder and raided Ernst residence claiming they're the new republic
+
+3. Chapter 4:
     - 
