@@ -62,4 +62,5 @@
     - When the line was retreating, reservists had guns pointed at them by civillians which survived 2 offensives. Meanwhile the bleachers broke out of the prison from sank jeder and raided Ernst residence claiming they're the new republic
 
 3. Chapter 4:
+    - Anju put a curse on dustin by keeping him in place due to him having a pure heart being turned against him
     - 
