@@ -65,4 +65,6 @@
     - Anju put a curse on dustin by keeping him in place due to him having a pure heart being turned against him
     - Ernst shoved and caved in the head of primevere
     - The legion were using unguided missles to scatter and destroy the fortifications and natural covers making large amounts of sediment rain down on the strike package platoons, which made units and squadrons split up and get caught
+    - Azhi Dahaka is the man-eating dragon NOUZEN special unit, atp crazy bones division was unleashed
+    - The Azhi Dahaka is older than the vanagandar model
     - 
