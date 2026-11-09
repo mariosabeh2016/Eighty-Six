@@ -68,4 +68,5 @@
     - Azhi Dahaka is the man-eating dragon NOUZEN special unit, atp crazy bones division was unleashed
     - The Azhi Dahaka is older than the vanagandar model
     - Theo, after getting shot at by a sniper from the flame leopards division, snuck into the mansion of Ernst only to find him bloody due to him absolutely annihilating the bleachers
+    - Anju need to switch platoons due to shin commitment to a fight, her words to dustin via para raid, before leaving that platoon in order to provide a cover for kurena were that she's going to come back to him and for him to keep his promise
     - 
