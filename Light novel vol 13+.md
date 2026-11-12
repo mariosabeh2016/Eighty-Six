@@ -72,4 +72,6 @@
     - Dustin got hit with  155mm shell and might be dead because of his thoughts
 
 4. Chapter 5:
+    - Zashia's was loyal and was able to deliver a para raid device to lena which made her able to connect with shin
+    - Jonas allowed that spare device transfer because he was serving as a staff officer for the western front at that point, gathering info, so annette acted as a contact point for the grp that remained in the base. Lena was in a room in the barracks of the military HQ, which had been made into an impromptu command post now. She was able to get shin back to his senses 
     - 
