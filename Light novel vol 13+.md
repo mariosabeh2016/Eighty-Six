@@ -75,4 +75,6 @@
     - Zashia's was loyal and was able to deliver a para raid device to lena which made her able to connect with shin
     - Jonas allowed that spare device transfer because he was serving as a staff officer for the western front at that point, gathering info, so annette acted as a contact point for the grp that remained in the base. Lena was in a room in the barracks of the military HQ, which had been made into an impromptu command post now. She was able to get shin back to his senses 
     - Miel and the group around him were saved by a group of reginleifs, because within that group there was someone who hear of theo
+    - Theo was able to stop Ernst from actually killing primevere and the rest of the bleachers, that were in his mansion (lying after their bones were crushed by a weapon stock), by calling him "dad". that idea was frederica's
+    - Citri left a ribbon and kind words to yuuto before leaping out of the window and exploding
     - 
