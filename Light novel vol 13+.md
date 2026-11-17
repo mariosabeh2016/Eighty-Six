@@ -77,4 +77,5 @@
     - Miel and the group around him were saved by a group of reginleifs, because within that group there was someone who hear of theo
     - Theo was able to stop Ernst from actually killing primevere and the rest of the bleachers, that were in his mansion (lying after their bones were crushed by a weapon stock), by calling him "dad". that idea was frederica's
     - Citri left a ribbon and kind words to yuuto before leaping out of the window and exploding
+    - Dustin survived the tank shell and he found a stray mascot and decided to save her along the way back to base
     - 
