@@ -78,4 +78,7 @@
     - Theo was able to stop Ernst from actually killing primevere and the rest of the bleachers, that were in his mansion (lying after their bones were crushed by a weapon stock), by calling him "dad". that idea was frederica's
     - Citri left a ribbon and kind words to yuuto before leaping out of the window and exploding
     - Dustin survived the tank shell and he found a stray mascot and decided to save her along the way back to base
+    - This current fight was during the day/year of january 2 2151
+    - Anju was brought to safety by kurena after being pulled by after she opened her canopy and told her about dustin's return
+    - Dustin made a joke about the maskot girl he saved being their child (anju and dustin)
     - 
