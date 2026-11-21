@@ -80,5 +80,11 @@
     - Dustin survived the tank shell and he found a stray mascot and decided to save her along the way back to base
     - This current fight was during the day/year of january 2 2151
     - Anju was brought to safety by kurena after being pulled by after she opened her canopy and told her about dustin's return
-    - Dustin made a joke about the maskot girl he saved being their child (anju and dustin)
+    - Dustin made a joke about the mascot girl he saved being their child (anju and dustin)
+    - Rito stopped a young Acteon child who was trying to detonate a suicide bomb out of revenge against Republic citizens, as a result a surviving Federacy soldier from another unit saw Rito shoot the child, mistakenly assumed Rito was murdering a civilian, and shot him in the head, first to know of this even was lerche and ludmila. the soldier who shot him would later be sentenced to death
+    - Theresa, the maid of his house was his wife's twin sister
+    - The first aromred division that was composed of 7 battalions, now it was made into 4 and Mitsuda who led the 5th artillery-config died in battle 
+    - The commanding officer of the soldier who shot rito sent an apology letter which shin and raiden would later on read it
+    - 2nd and 4th are to be restructured
+    - last few soldiers from canaan's squadron as well as canaan escaped death and managed to return to base but the 3rd armored division was to be disbanded
     - 
