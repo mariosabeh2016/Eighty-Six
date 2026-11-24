@@ -87,4 +87,6 @@
     - The commanding officer of the soldier who shot rito sent an apology letter which shin and raiden would later on read it
     - 2nd and 4th are to be restructured
     - last few soldiers from canaan's squadron as well as canaan escaped death and managed to return to base but the 3rd armored division was to be disbanded
+    - Chech federacy state picture
+    - The old general of willem made the decision to not get him involved so he only would take the blame/be resonsible and not the entire western front army
     - 
