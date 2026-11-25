@@ -1,92 +1,95 @@
 - Claude Knot took over as captain in the spearhead squadron, red haired
 - Tohru is a captain for the 3rd platoon, took over after theo got injured
-- Yuuto Crow is the commander of the 4th squadron, thunderbolt. 
+- Yuuto Crow is the commander of the 4th squadron, thunderbolt.
 - Reki Michihi captain of the 5th squadron, lycaon
 - Rito Oriya captain of the 7th squadron, claymore, was in a squadron that shin belonged to
 - Olivia Aegis is now an instructor of the new weapon-ctrl system
 - Lerche contains the neural network of the deceased vika's childhood friend
 
 0. Prologue:
-    - Dustin jaeger was the neighbor and same age of of Citri and her family when they were in the republic before the war and relocating to the federacy. He was an alba and from the giadian empire bloodline. Dustin treated Citri properly when they were young, while other children used to toss bugs at her and tugged her hair. That's what made Citri like Dustin
-    - Citri's group contained the following children and young people: Kiki, Karine, Ashiha, Imeno, Totori, Ran, and Shiohi. Totori deserted them only to die alone. Yuuto was in charge of helping them because the group initially got formed when they were in the 86 lab
-    - Karine had long straight, red hair and she was an older sister figure to everyone 
-    - Kiki had a petite figure and had golden hair
-    - Yuuto had silvery hair with slightly orangish dusk colored red eyes
+   - Dustin jaeger was the neighbor and same age of of Citri and her family when they were in the republic before the war and relocating to the federacy. He was an alba and from the giadian empire bloodline. Dustin treated Citri properly when they were young, while other children used to toss bugs at her and tugged her hair. That's what made Citri like Dustin
+   - Citri's group contained the following children and young people: Kiki, Karine, Ashiha, Imeno, Totori, Ran, and Shiohi. Totori deserted them only to die alone. Yuuto was in charge of helping them because the group initially got formed when they were in the 86 lab
+   - Karine had long straight, red hair and she was an older sister figure to everyone
+   - Kiki had a petite figure and had golden hair
+   - Yuuto had silvery hair with slightly orangish dusk colored red eyes
 
 1. Chapter 1:
-    - The operation to seize the base containing the shutdown broadcast device was planned and postpointed prior to the 2nd large scale offensive, operation Overlord
-    - The squadrons that are to be despatched to operation overlord are from the 1st armored division all the way to the 4th probably, along with the 7 battalions with infantry from the vargus civillians that are being trained in Fortrapide city
-    - Locan is the 7th battalion commander while Kunoe is the captain of the 6th
-    - If the rabe were to move in to operate in place of the satellite in case it was lost, the one that's been used to relay information from the shutdown base would confirm the satellite in question. And so, locating it wouldn't be hard since the federacy can verify which once were in orbit before the large scale offensive and are still currently active
-    - The interrogators took turns repeating the names of imperial or important figures when they were alive to see if zelene would repeat that name or not in order to know if that name corresponded to a current shepherd
-    - In operation overlord imperials like pyropes and onyx, including archduchess brantolote would be sending their subordinates so the strike package would always be around frederica to protect her
-    - Yatrai and Joschka were discussing, with the strikke package over para raid, who was going to participate in operation overlord, Yatrai informed that house maika decided to send out Joschka's strix division 
-    - Yatrai is married to a daughter from a major house nouzen branch, she is the vice commander of the crazy bones division
-    - Saki, yuuto's substitue commander of the 4th battalion in his absense, had long black bangs, golden eyes and a lithe feline physique
-    - Yuuto told amari to cover for him when we went to help citri and her group
-    - An acateon might have caused the explostion, and the news of the explosion said that the explosion was unexplained which made yuuto deduce that amari's word wasn't trusted
-    - Shin informed Joschka that one of the eastern countries must have fallen due to the increase in the legion numbers on the federacy's western front
-    - The rivalries in the federacy were present in the past, between pyropes and onyxes and prejudice toward the vargus. The was also the division between the vassals and the serfs and within the vassals ther was antagonism between the lola and the taafe
-    - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried and his subordinate jonas degen, who arrested annette
-    - 3 of the terrorist bombers were 86: Hina Shinaga, Saya Hiyo, Yukiri Hakuro
-    - Primevere, the leader of the bleachers or whatever, spoke about how they created human self-propelled mines using the 86 in a secret research facily/ies. these facilities contained or were connected to high-ranking officials as well as government officials from the republic
-    - Albaster and adularia were subordinates to the Celena which created the human self prop mines
-    - The acateon were used to dispose any of the surviving 86
-    - Before vika was born, there was a footage showing a big scuttering in a panic due to cells rapidly devouring adipocytes and since the republic boasted of countless livestock and they were more than the population itself. they would be used on tests
-    - The republic also went further since the legion war was "within their eyes" at the end of it, they were going to use these weapons to begin antipersonnel combat
-    - The REPUBLIC IS the WORST
-    - Lena and annette were celena, for that reason grethe wouldn't allow them to go back to the frontlines and so they placed soldiers to serve and guard them
-    - The legion are now targeting the reserved republic forces and the 10 federacy fronts using morphos and Nidhogg (a former 86 seeking revenge), guided by No Face (Vaclav Milize).
+   - The operation to seize the base containing the shutdown broadcast device was planned and postpointed prior to the 2nd large scale offensive, operation Overlord
+   - The squadrons that are to be despatched to operation overlord are from the 1st armored division all the way to the 4th probably, along with the 7 battalions with infantry from the vargus civillians that are being trained in Fortrapide city
+   - Locan is the 7th battalion commander while Kunoe is the captain of the 6th
+   - If the rabe were to move in to operate in place of the satellite in case it was lost, the one that's been used to relay information from the shutdown base would confirm the satellite in question. And so, locating it wouldn't be hard since the federacy can verify which once were in orbit before the large scale offensive and are still currently active
+   - The interrogators took turns repeating the names of imperial or important figures when they were alive to see if zelene would repeat that name or not in order to know if that name corresponded to a current shepherd
+   - In operation overlord imperials like pyropes and onyx, including archduchess brantolote would be sending their subordinates so the strike package would always be around frederica to protect her
+   - Yatrai and Joschka were discussing, with the strikke package over para raid, who was going to participate in operation overlord, Yatrai informed that house maika decided to send out Joschka's strix division
+   - Yatrai is married to a daughter from a major house nouzen branch, she is the vice commander of the crazy bones division
+   - Saki, yuuto's substitue commander of the 4th battalion in his absense, had long black bangs, golden eyes and a lithe feline physique
+   - Yuuto told amari to cover for him when we went to help citri and her group
+   - An acateon might have caused the explostion, and the news of the explosion said that the explosion was unexplained which made yuuto deduce that amari's word wasn't trusted
+   - Shin informed Joschka that one of the eastern countries must have fallen due to the increase in the legion numbers on the federacy's western front
+   - The rivalries in the federacy were present in the past, between pyropes and onyxes and prejudice toward the vargus. The was also the division between the vassals and the serfs and within the vassals ther was antagonism between the lola and the taafe
+   - Annette and Lena were arrested by the federacy officers and higher ranks like willem ehrenfried and his subordinate jonas degen, who arrested annette
+   - 3 of the terrorist bombers were 86: Hina Shinaga, Saya Hiyo, Yukiri Hakuro
+   - Primevere, the leader of the bleachers or whatever, spoke about how they created human self-propelled mines using the 86 in a secret research facily/ies. these facilities contained or were connected to high-ranking officials as well as government officials from the republic
+   - Albaster and adularia were subordinates to the Celena which created the human self prop mines
+   - The acateon were used to dispose any of the surviving 86
+   - Before vika was born, there was a footage showing a big scuttering in a panic due to cells rapidly devouring adipocytes and since the republic boasted of countless livestock and they were more than the population itself. they would be used on tests
+   - The republic also went further since the legion war was "within their eyes" at the end of it, they were going to use these weapons to begin antipersonnel combat
+   - The REPUBLIC IS the WORST
+   - Lena and annette were celena, for that reason grethe wouldn't allow them to go back to the frontlines and so they placed soldiers to serve and guard them
+   - The legion are now targeting the reserved republic forces and the 10 federacy fronts using morphos and Nidhogg (a former 86 seeking revenge), guided by No Face (Vaclav Milize).
 
 2. Chapter 2-3:
-    - The other by-products that the researches conducted by the republic in order to create the human bombs were the fertilizers and other agricultural plants used in many countries
-    - Amari Mill told dustin about citri and he was in a rush to go catch up with her and yuuto but anju managed to knock him back to his senses and know that even if he had everything prepared, he wouldn't be able to make the one way trip. Anju MIGHT help him get to them
-    - The acateon were to blow up by a set time (initially in december), 1 month from now
-    - Grethe and Willem are doing the right thing atm, and that's to keep lena and rita safe (in custody)
-    - Dustin might not catch up to Citri
-    - Citri community memebers origins: Kiki was born in a town with many old steeples, Shiohi was born in a village where the mountains of the alliance were visible, Karine grew up in the southern vice capital of Euzitria, Imeno spoke seas of golden swaying wheat, Ashiha told of days spent looking after sheep
-    - Citri was fine not meeting up with Dustin if that meeting would burden him with a curse in its own way
-    - Sank Jeder was being more and more filled with refugees and it's original citizens were starting fights with them due to the entire situation going from bad to worse
-    - Miel was from the republic and with everything regarding the bombings and the war, he thought that the federacy came hate the republic even more
-    - House degen carries the kind of power among the onyxes that allows them to hear a lot more
-    - The republic might be hiding something else other than the wiretraps and the human-suicide bombs
-    - The captain and the vice captain were in on a discrimination mission (sending the republic reservists to a mine field), so Henry, a republic soldier stood up to this and faced the first lieutenant Simoni Kareli. So he started pointing at him and the other so that they wouldn't hide in groups
-    - Olivia, Raiden, Reverend, Shiden as well as other soldier like Marcel and more participated in a brawling practice in maneuvering grounds in order for shin to vent out steam
-    - Dustin is fucking up stuff, being with Citri or Anju so Amari finally told him that she didn't ask for him to save her
-    - Lord nouzen Yatrai came to Lena and Annette to question them about the freedom and equality, hence they were from the republic and their flag embodied those meanings. He was about 20 years old, bore the insignia of a sekeletal hand gripping a longsword, had a sharp and cruel gaze with a physique of a warrior. Yatrai was also a higher rank than Jonas, who was "protecting" Lena and Annette
-    - The reservist eventually chose to save their own lives than the lives of the federacy emperials/vargus... so they retreated from the front lines
-    - The federacy frontlines were beginning to fall more and more due to delayed reinforcements and not so well trained reservist as well as the fear of the human self exploding bombs PLUS the new self propelled mines of the legion that look like babies
-    - Retreating soldiers fired on their allies and so the military of the federacy shattered into small groups fighting against each other instead of a single unit fighting as one
-    - With more frontlines falling, the now frontline became rustkammer base
-    - The next position of the strike package are to be deployedi in was the strip to the west of the Zasifanoksa Forest
-    - When the line was retreating, reservists had guns pointed at them by civillians which survived 2 offensives. Meanwhile the bleachers broke out of the prison from sank jeder and raided Ernst residence claiming they're the new republic
+   - The other by-products that the researches conducted by the republic in order to create the human bombs were the fertilizers and other agricultural plants used in many countries
+   - Amari Mill told dustin about citri and he was in a rush to go catch up with her and yuuto but anju managed to knock him back to his senses and know that even if he had everything prepared, he wouldn't be able to make the one way trip. Anju MIGHT help him get to them
+   - The acateon were to blow up by a set time (initially in december), 1 month from now
+   - Grethe and Willem are doing the right thing atm, and that's to keep lena and rita safe (in custody)
+   - Dustin might not catch up to Citri
+   - Citri community memebers origins: Kiki was born in a town with many old steeples, Shiohi was born in a village where the mountains of the alliance were visible, Karine grew up in the southern vice capital of Euzitria, Imeno spoke seas of golden swaying wheat, Ashiha told of days spent looking after sheep
+   - Citri was fine not meeting up with Dustin if that meeting would burden him with a curse in its own way
+   - Sank Jeder was being more and more filled with refugees and it's original citizens were starting fights with them due to the entire situation going from bad to worse
+   - Miel was from the republic and with everything regarding the bombings and the war, he thought that the federacy came hate the republic even more
+   - House degen carries the kind of power among the onyxes that allows them to hear a lot more
+   - The republic might be hiding something else other than the wiretraps and the human-suicide bombs
+   - The captain and the vice captain were in on a discrimination mission (sending the republic reservists to a mine field), so Henry, a republic soldier stood up to this and faced the first lieutenant Simoni Kareli. So he started pointing at him and the other so that they wouldn't hide in groups
+   - Olivia, Raiden, Reverend, Shiden as well as other soldier like Marcel and more participated in a brawling practice in maneuvering grounds in order for shin to vent out steam
+   - Dustin is fucking up stuff, being with Citri or Anju so Amari finally told him that she didn't ask for him to save her
+   - Lord nouzen Yatrai came to Lena and Annette to question them about the freedom and equality, hence they were from the republic and their flag embodied those meanings. He was about 20 years old, bore the insignia of a sekeletal hand gripping a longsword, had a sharp and cruel gaze with a physique of a warrior. Yatrai was also a higher rank than Jonas, who was "protecting" Lena and Annette
+   - The reservist eventually chose to save their own lives than the lives of the federacy emperials/vargus... so they retreated from the front lines
+   - The federacy frontlines were beginning to fall more and more due to delayed reinforcements and not so well trained reservist as well as the fear of the human self exploding bombs PLUS the new self propelled mines of the legion that look like babies
+   - Retreating soldiers fired on their allies and so the military of the federacy shattered into small groups fighting against each other instead of a single unit fighting as one
+   - With more frontlines falling, the now frontline became rustkammer base
+   - The next position of the strike package are to be deployedi in was the strip to the west of the Zasifanoksa Forest
+   - When the line was retreating, reservists had guns pointed at them by civillians which survived 2 offensives. Meanwhile the bleachers broke out of the prison from sank jeder and raided Ernst residence claiming they're the new republic
 
 3. Chapter 4:
-    - Anju put a curse on dustin by keeping him in place due to him having a pure heart being turned against him
-    - Ernst shoved and caved in the head of primevere
-    - The legion were using unguided missles to scatter and destroy the fortifications and natural covers making large amounts of sediment rain down on the strike package platoons, which made units and squadrons split up and get caught
-    - Azhi Dahaka is the man-eating dragon NOUZEN special unit, atp crazy bones division was unleashed
-    - The Azhi Dahaka is older than the vanagandar model
-    - Theo, after getting shot at by a sniper from the flame leopards division, snuck into the mansion of Ernst only to find him bloody due to him absolutely annihilating the bleachers
-    - Anju need to switch platoons due to shin commitment to a fight, her words to dustin via para raid, before leaving that platoon in order to provide a cover for kurena were that she's going to come back to him and for him to keep his promise
-    - Dustin got hit with  155mm shell and might be dead because of his thoughts
+   - Anju put a curse on dustin by keeping him in place due to him having a pure heart being turned against him
+   - Ernst shoved and caved in the head of primevere
+   - The legion were using unguided missles to scatter and destroy the fortifications and natural covers making large amounts of sediment rain down on the strike package platoons, which made units and squadrons split up and get caught
+   - Azhi Dahaka is the man-eating dragon NOUZEN special unit, atp crazy bones division was unleashed
+   - The Azhi Dahaka is older than the vanagandar model
+   - Theo, after getting shot at by a sniper from the flame leopards division, snuck into the mansion of Ernst only to find him bloody due to him absolutely annihilating the bleachers
+   - Anju need to switch platoons due to shin commitment to a fight, her words to dustin via para raid, before leaving that platoon in order to provide a cover for kurena were that she's going to come back to him and for him to keep his promise
+   - Dustin got hit with 155mm shell and might be dead because of his thoughts
 
 4. Chapter 5:
-    - Zashia's was loyal and was able to deliver a para raid device to lena which made her able to connect with shin
-    - Jonas allowed that spare device transfer because he was serving as a staff officer for the western front at that point, gathering info, so annette acted as a contact point for the grp that remained in the base. Lena was in a room in the barracks of the military HQ, which had been made into an impromptu command post now. She was able to get shin back to his senses 
-    - Miel and the group around him were saved by a group of reginleifs, because within that group there was someone who hear of theo
-    - Theo was able to stop Ernst from actually killing primevere and the rest of the bleachers, that were in his mansion (lying after their bones were crushed by a weapon stock), by calling him "dad". that idea was frederica's
-    - Citri left a ribbon and kind words to yuuto before leaping out of the window and exploding
-    - Dustin survived the tank shell and he found a stray mascot and decided to save her along the way back to base
-    - This current fight was during the day/year of january 2 2151
-    - Anju was brought to safety by kurena after being pulled by after she opened her canopy and told her about dustin's return
-    - Dustin made a joke about the mascot girl he saved being their child (anju and dustin)
-    - Rito stopped a young Acteon child who was trying to detonate a suicide bomb out of revenge against Republic citizens, as a result a surviving Federacy soldier from another unit saw Rito shoot the child, mistakenly assumed Rito was murdering a civilian, and shot him in the head, first to know of this even was lerche and ludmila. the soldier who shot him would later be sentenced to death
-    - Theresa, the maid of his house was his wife's twin sister
-    - The first aromred division that was composed of 7 battalions, now it was made into 4 and Mitsuda who led the 5th artillery-config died in battle 
-    - The commanding officer of the soldier who shot rito sent an apology letter which shin and raiden would later on read it
-    - 2nd and 4th are to be restructured
-    - last few soldiers from canaan's squadron as well as canaan escaped death and managed to return to base but the 3rd armored division was to be disbanded
-    - Chech federacy state picture
-    - The old general of willem made the decision to not get him involved so he only would take the blame/be resonsible and not the entire western front army
+   - Zashia's was loyal and was able to deliver a para raid device to lena which made her able to connect with shin
+   - Jonas allowed that spare device transfer because he was serving as a staff officer for the western front at that point, gathering info, so annette acted as a contact point for the grp that remained in the base. Lena was in a room in the barracks of the military HQ, which had been made into an impromptu command post now. She was able to get shin back to his senses
+   - Miel and the group around him were saved by a group of reginleifs, because within that group there was someone who hear of theo
+   - Theo was able to stop Ernst from actually killing primevere and the rest of the bleachers, that were in his mansion (lying after their bones were crushed by a weapon stock), by calling him "dad". that idea was frederica's
+   - Citri left a ribbon and kind words to yuuto before leaping out of the window and exploding
+   - Dustin survived the tank shell and he found a stray mascot and decided to save her along the way back to base
+   - This current fight was during the day/year of january 2 2151
+   - Anju was brought to safety by kurena after being pulled by after she opened her canopy and told her about dustin's return
+   - Dustin made a joke about the mascot girl he saved being their child (anju and dustin)
+   - Rito stopped a young Acteon child who was trying to detonate a suicide bomb out of revenge against Republic citizens, as a result a surviving Federacy soldier from another unit saw Rito shoot the child, mistakenly assumed Rito was murdering a civilian, and shot him in the head, first to know of this even was lerche and ludmila. the soldier who shot him would later be sentenced to death
+   - Theresa, the maid of his house was his wife's twin sister
+   - The first aromred division that was composed of 7 battalions, now it was made into 4 and Mitsuda who led the 5th artillery-config died in battle
+   - The commanding officer of the soldier who shot rito sent an apology letter which shin and raiden would later on read it
+   - 2nd and 4th are to be restructured
+   - last few soldiers from canaan's squadron as well as canaan escaped death and managed to return to base but the 3rd armored division was to be disbanded
+   - Chech federacy state picture
+   - The old general of willem made the decision to not get him involved so he only would take the blame/be resonsible and not the entire western front army. So they cut off all the fronts from rustkammer base from all the frontlines by dropping dissemination mines so all front's would be forced defend it to the bitter end, turning the entire fronts like what was the 86 sector
+   - Rito was used to baldy frame the strike package and the 86 once more by not showing the explosion of the acateon
+
+5. Afterword:
     - 
