@@ -90,6 +90,3 @@
    - Chech federacy state picture
    - The old general of willem made the decision to not get him involved so he only would take the blame/be resonsible and not the entire western front army. So they cut off all the fronts from rustkammer base from all the frontlines by dropping dissemination mines so all front's would be forced defend it to the bitter end, turning the entire fronts like what was the 86 sector
    - Rito was used to baldy frame the strike package and the 86 once more by not showing the explosion of the acateon
-
-5. Afterword:
-    - 
